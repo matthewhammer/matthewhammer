@@ -12,7 +12,7 @@ I choose to remember and know that I'm an infinite spirit that's choosing to be 
 
 Strangely, I got this information by focusing on my own research, on demanded computation graphs, which represents my highest excitement in terms of technical research.
 
-If anything above doesn't resonate, no problem.  If it does, I'm happy to tell you more about my approach, and various resources of information I've found to resonate with my stance, as outlined above.
+If anything above doesn't resonate, no problem.  If it does, I hope we can find a way to connect one day.
 
 My unconditional love,
 Matthew (Matt)
