@@ -2,13 +2,11 @@ Hello!
 
 Are you interested in metaphysical philosophy?
 
-I have believed for my entire life that we are all wearing "negative beliefs" or "limiting beliefs" and I've been dedicated to understanding and transforming my own.
+I have believed for my entire life that we are all wearing "negative beliefs" or "limiting beliefs".  Throughout the years, I've been excited to understanding and transforming my own negative/limiting beliefs.
 
-There's plenty of cults that zero into this truth about physical reality on Earth in our times.  It's a time of dominance through belief system.
+There's plenty of cults that zero into this truth about physical reality on Earth in our times.  It's a time of dominance through belief systems that mix negativity and positivity.
 
-But I have another belief that's stronger because it's more inclusive of all realities, including our current one and the one we could collectively move towards that's more aligned with each of our highest excitements in life.
-
-I choose to remember and know that I'm an infinite spirit that's choosing to be here, and experience all of this negativity for my eternal growth.
+In these times, I choose to remember, and to know, that I'm an infinite spirit that has choosen to be here, and to experience all of this negativity for my eternal growth, and the growth of other spirits here too.
 
 Strangely, I got this information by focusing on my own research, on demanded computation graphs, which represents my highest excitement in terms of technical research.
 
