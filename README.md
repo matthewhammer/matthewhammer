@@ -2,7 +2,7 @@ Hello!
 
 Are you interested in metaphysical philosophy?
 
-I have believed for my entire life that we are all wearing "negative beliefs" or "limiting beliefs".  Throughout the years, I've been excited to understanding and transforming my own negative/limiting beliefs.
+I have believed for my entire life that we are all wearing "negative beliefs" or "limiting beliefs".  Throughout the years, I've been excited to understand and transform my own versions of these beliefs.
 
 There's plenty of cults that zero into this truth about physical reality on Earth in our times.  It's a time of dominance through belief systems that mix negativity and positivity.
 
